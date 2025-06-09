@@ -1,0 +1,1 @@
+# pannaan-beads.shop
